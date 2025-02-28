@@ -4,7 +4,7 @@ https://1drv.ms/o/s!AoCCtAGbrVdwj2urY5lymptYrHxT?e=e7c0UW
 <hr color="red"> 
 
 # DL for CV
-https://1drv.ms/o/s!AoCCtAGbrVdwkDhD07D1IoqDCQgs?e=ajyCqa
+https://1drv.ms/o/s!AoCCtAGbrVdwkDhYB5uwr-bFTzaj?e=OsEMEF
 <br>
 Quiz1 pyq -> https://drive.google.com/file/d/1yjs0YqHvpCyKSN0xNQFradB8CjGtEd58/view?usp=sharing
 <br>
@@ -17,11 +17,11 @@ Quiz1 pyq -> https://drive.google.com/file/d/1yjs0YqHvpCyKSN0xNQFradB8CjGtEd58/v
 <br>
 
 # Advanced linguistics 
-https://1drv.ms/o/s!AoCCtAGbrVdwkFAoJkgMcUQZFHrN?e=okdaqW
+https://1drv.ms/o/s!AoCCtAGbrVdwkFB9CcTPd5XiHx6_?e=vfW4wJ
 
 <hr color="red">
 
 # OE3036
-https://1drv.ms/o/s!AoCCtAGbrVdwkQR1GQc9bcNWkGnR?e=qAmuM3
+https://1drv.ms/o/s!AoCCtAGbrVdwkQRanhceV8KijsfZ?e=BCszXz
 
 
